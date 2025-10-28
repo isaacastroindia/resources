@@ -9,4 +9,4 @@ This national collaboration has been set up to create a network of Astronomy and
 
 ## Opportunities
 
-- **(NEW)**:sparkles: [School on Optical Astronomy Techniques (IUCAA)](https://soat.iucaa.in/SOAT2026/welcome.html) - Registration Deadline: November 13, 2025
+- :sparkles:**(NEW)**:sparkles: [School on Optical Astronomy Techniques (IUCAA)](https://soat.iucaa.in/SOAT2026/welcome.html) - Registration Deadline: November 13, 2025
