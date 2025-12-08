@@ -9,4 +9,4 @@ This national collaboration has been set up to create a network of Astronomy and
 
 ## Opportunities
 
-- :sparkles:**(NEW)**:sparkles: [School on Optical Astronomy Techniques (IUCAA)](https://soat.iucaa.in/SOAT2026/welcome.html) - Registration Deadline: November 13, 2025
+- :sparkles:**(NEW)**:sparkles: [LIGO-India Astrophotography Webinar by Dr. Sumeet Kulkarni](https://docs.google.com/forms/d/e/1FAIpQLScX5dk0JQFq_dsGD-oY-A2FaP7yEDJTdI6up4022MGvFXg_7w/formResponse) - Registration Deadline: December 13, 2025
