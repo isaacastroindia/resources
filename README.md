@@ -9,4 +9,6 @@ This national collaboration has been set up to create a network of Astronomy and
 
 ## Opportunities
 
-- :sparkles:**(NEW)**:sparkles: [LIGO-India Astrophotography Webinar by Dr. Sumeet Kulkarni](https://docs.google.com/forms/d/e/1FAIpQLScX5dk0JQFq_dsGD-oY-A2FaP7yEDJTdI6up4022MGvFXg_7w/formResponse) - Registration Deadline: December 13, 2025
+## Events
+
+- :sparkles:**(NEW)**:sparkles: [Pimordium 2026 - Ramakrishna Mission Vivekananda Centenary College (RKMVCC)](pimordium.site)
