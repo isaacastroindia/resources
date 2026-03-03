@@ -11,4 +11,4 @@ This national collaboration has been set up to create a network of Astronomy and
 
 ## Events
 
-- :sparkles:**(NEW)**:sparkles: [Pimordium 2026 - Ramakrishna Mission Vivekananda Centenary College (RKMVCC)](pimordium.site)
+- :sparkles:**(NEW)**:sparkles: [Pimordium 2026 - Ramakrishna Mission Vivekananda Centenary College (RKMVCC)](https://pimordium.site)
